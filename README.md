@@ -1,1 +1,1 @@
-# tanzaku-sikill
+# tanzaku-skill
